@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ImSimplidius
 - 👀 I’m interested in ... Making texturepacks and participating in other collaborations
 - 🌱 I’m currently learning ... On Making Addons
-- 💞️ I’m looking to collaborate on ... With MMOX xxAXON
+- 💞️ I’m looking to collaborate on ... With MMOX - xxAROX
 - 📫 How to reach me ... Discord - Simplidius#6712 
 
 <!---
